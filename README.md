@@ -1,0 +1,2 @@
+# MojePierwszeRepozytorium
+Tak jak nazwa
